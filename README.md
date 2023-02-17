@@ -3,13 +3,14 @@
 overview of what solo ads are and why they are useful for businesses
 
 Introduction:
-Solo ads are a form of online advertising that can help businesses generate leads and increase sales. They work by sending a promotional message to a targeted email list provided by a solo ad seller.
+Solo ads are warmed up email leads and a form of online advertising that can help businesses generate leads and increase sales. They work by sending a promotional message to a targeted email list provided by a solo ad seller.
+A solo ads seller is someone who simply happens to have a large email list, and **loans you** access to their list for a fee, usually a cost per click.
 
-Benefits of Solo Ads:
+<h2>Benefits of Solo Ads:</h2>
 Some of the benefits of using solo ads include the ability to target a specific audience, generate leads, and increase sales. They can also be a cost-effective way to reach a large number of people.
 
-How to Buy and Sell Solo Ads:
-To buy and sell solo ads, you can use a variety of platforms and sellers. It's important to do your research and find reliable sellers who offer quality traffic. You should also consider the different types of solo ads, such as click-based or opt-in based, and choose the right one for your goals.
+<h2>How to Buy and Sell Solo Ads:</h2>
+The largest platform to buy solo ads is by far <a href="https://udimi.com/a/4e89c">UDIMI</a>. On this platform you'll find both buyers and sellers of solo ads. You can choose specific sellers to buy solo ads from based on metrics, such as quality of traffic, location of such traffic - reviews from past buyers on the seller's profile etc. Udimi is very strict about the quality of traffic sellers sell, and have a rigorous filtering system that filters traffic or email leads deemed to be bots, of poor quality or when someone opens and closes their email very fast.
 
 Creating Effective Solo Ad Campaigns:
 To create an effective solo ad campaign, you need to write compelling ad copy that will grab the reader's attention. You should also choose an eye-catching image that will complement your message. It's important to test and optimize your campaigns to achieve the best results.
