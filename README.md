@@ -10,7 +10,7 @@ A solo ads seller is someone who simply happens to have a large email list, and 
 Some of the benefits of using solo ads include the ability to target a specific audience, generate leads, and increase sales. They can also be a cost-effective way to reach a large number of people.
 
 <h2>How to Buy and Sell Solo Ads:</h2>
-The largest platform to buy solo ads from is by far <u><a href="https://udimi.com/a/4e89c">UDIMI</a></u>. On this platform you'll find both buyers and sellers of solo ads. You can choose specific sellers to buy solo ads from based on metrics, such as quality of traffic, location of such traffic - reviews from past buyers on the seller's profile etc. Udimi is very strict about the quality of traffic sellers sell, and have a rigorous filtering system that filters traffic or email leads deemed to be bots, of poor quality or when someone opens and closes their email very fast.
+The largest platform to buy solo ads from is by far <a href="https://udimi.com/a/4e89c"><u>UDIMI>/u></a>. On this platform you'll find both buyers and sellers of solo ads. You can choose specific sellers to buy solo ads from based on metrics, such as quality of traffic, location of such traffic - reviews from past buyers on the seller's profile etc. Udimi is very strict about the quality of traffic sellers sell, and have a rigorous filtering system that filters traffic or email leads deemed to be bots, of poor quality or when someone opens and closes their email very fast.
 
 So, should you be looking for <a href="https://highincomeacademy.com/best-solo-ads-for-affiliate-marketing/">solo ads for affiliate marketing</a>, Udimi should be your destination of choice. You'll not be disappointed.
 
