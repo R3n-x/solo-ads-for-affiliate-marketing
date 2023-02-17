@@ -1,4 +1,4 @@
-**Solo Ads for Affiliate Marketing**
+<h1>Solo Ads for Affiliate Marketing</h1>
 
 overview of what solo ads are and why they are useful for businesses
 
