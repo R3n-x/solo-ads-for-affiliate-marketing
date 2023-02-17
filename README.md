@@ -1,8 +1,8 @@
 <h1>Solo Ads for Affiliate Marketing</h1>
 
-overview of what solo ads are and why they are useful for businesses
+Overview of what solo ads are and why they are useful for businesses
 
-Introduction:
+**Introduction:**
 Solo ads are warmed up email leads and a form of online advertising that can help businesses generate leads and increase sales. They work by sending a promotional message to a targeted email list provided by a solo ad seller.
 A solo ads seller is someone who simply happens to have a large email list, and **loans you** access to their list for a fee, usually a cost per click.
 
@@ -34,4 +34,6 @@ In conclusion, solo ads can be a valuable tool for businesses looking to increas
 <ul>
   <ol><a href="https://myleadgensecret.com"/>My leadgen Secret</a> - this is a monthly subscription website where you receive 100-200 free email leads a day</ol>
   <ol><a href="https://www.facebook.com/groups/SoloAdsTestimonials">Solo Ads Testimonials</a>  - Largest group of solo ads buyers and sellers on Facebook. Here Buyers come to leave reviews of the quality of solo ads they purchased.</ol>
+  <ol><a href="https://warriorplus.com/">Warriorplus</a> - One of the best resources to find affiliate products to promote with solo ads.</ol>
+  <ol><a href="https://clickbank.com/">Clickbank</a> - The largest market places online for diital products to promote with solo ads - you can rank products by gravity score - a measurement of how my of the same product other affiliates are making money with online</ol>
   </ul>
