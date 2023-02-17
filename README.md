@@ -32,5 +32,5 @@ In conclusion, solo ads can be a valuable tool for businesses looking to increas
 
 <h2>Other Solo Ads Resources</h2>
 <ul>
-  <ol><a href="https://myleadgensecret.com/>"My leadgen Secret</a> - this is a monthly subscription website where you receive 100-200 free email leads a day</ol>
+  <ol><a href="https://myleadgensecret.com"/>My leadgen Secret</a> - this is a monthly subscription website where you receive 100-200 free email leads a day</ol>
   </ul>
