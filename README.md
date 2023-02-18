@@ -2,7 +2,13 @@
 
 Overview of what solo ads are and why they are useful for businesses
 
+Ever wondered how some Internet marketers can somehow create or promote someone else's product online and, within a couple of hours start generating some money? Perhaps you too have tried this affiliate marketing thing but each time came short because you couldn't generate enough interest in your review or affiliate page in order to start making money.
+
+Unless you're a seasoned social media influencer, you know how tough it is to generate traffic on demand for your affiliate offers - if it was that easy, everyone would be doing it right?
+Well, you're closer to the answer than you realize, because most of these internet marketers are using what is generally known as warmed up email leads or solo ads, which might be a more well known phrase for this type of traffic.
+
 **Introduction:**
+
 Solo ads are warmed up email leads and a form of online advertising that can help businesses generate leads and increase sales. They work by sending a promotional message to a targeted email list provided by a solo ad seller.
 A solo ads seller is someone who simply happens to have a large email list, and **loans you** access to their list for a fee, usually a cost per click.
 
