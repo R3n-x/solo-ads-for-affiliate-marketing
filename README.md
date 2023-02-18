@@ -36,7 +36,7 @@ The potential outcomes of using solo ads can vary, and there are some risks to c
 <h2>Final Thoughts</h2>
 In conclusion, solo ads can be a valuable tool for businesses looking to increase their online presence and generate leads. By following best practices and testing your campaigns, you can achieve success with solo ads and drive more traffic and sales to your business.
 
-<h2>Other Solo Ads Resources</h2>
+<h2>Useful Resources</h2>
 <ul>
   <ol><a href="https://myleadgensecret.com"/>My leadgen Secret</a> - this is a monthly subscription website where you receive 100-200 free email leads a day</ol>
   <ol><a href="https://www.facebook.com/groups/SoloAdsTestimonials">Solo Ads Testimonials</a>  - Largest group of solo ads buyers and sellers on Facebook. Here Buyers come to leave reviews of the quality of solo ads they purchased.</ol>
