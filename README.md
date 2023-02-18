@@ -41,5 +41,6 @@ In conclusion, solo ads can be a valuable tool for businesses looking to increas
   <ol><a href="https://myleadgensecret.com"/>My leadgen Secret</a> - this is a monthly subscription website where you receive 100-200 free email leads a day</ol>
   <ol><a href="https://www.facebook.com/groups/SoloAdsTestimonials">Solo Ads Testimonials</a>  - Largest group of solo ads buyers and sellers on Facebook. Here Buyers come to leave reviews of the quality of solo ads they purchased.</ol>
   <ol><a href="https://warriorplus.com/">Warriorplus</a> - One of the best resources to find affiliate products to promote with solo ads.</ol>
-  <ol><a href="https://clickbank.com/">Clickbank</a> - The largest market places online for diital products to promote with solo ads - you can rank products by gravity score - a measurement of how my of the same product other affiliates are making money with online</ol>
+  <ol><a href="https://clickbank.com/">Clickbank</a> - The largest market place online for diital products to promote with solo ads - you can rank products by gravity score - a measurement of how my of the same product other affiliates are making money with online</ol>
+  <ol><a href="https://leadsleap.com/">Leads Leap</a> - WYSIWYG Page builder - Large Community of Online Marketers and Free Traffic to promote your affiliate links</ol>
   </ul>
