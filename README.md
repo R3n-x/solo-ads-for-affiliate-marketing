@@ -44,4 +44,5 @@ In conclusion, solo ads can be a valuable tool for businesses looking to increas
   <ol><a href="https://warriorplus.com/">Warriorplus</a> - One of the best resources to find affiliate products to promote with solo ads.</ol>
   <ol><a href="https://clickbank.com/">Clickbank</a> - The largest market place online for diital products to promote with solo ads - you can rank products by gravity score - a measurement of how my of the same product other affiliates are making money with online</ol>
   <ol><a href="https://leadsleap.com/">Leads Leap</a> - WYSIWYG Page builder - Large Community of Online Marketers and Free Traffic to promote your affiliate links</ol>
+  <ol><a href="https://moreniche.com/">MoreNiche</a> - Physical products in the health niche that you can promote using solo ads for testing purposes or conversion optimization</a></ol>
   </ul>
